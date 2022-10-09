@@ -1,3 +1,4 @@
+Billlie - Patbingsu (Performance ver.)<br>
 Weki Meki - Crush<br>
 Victoria Kern feat. Anna Grey - Ride Ride Ride<br>
 Rocket Punch - CHIQUITA (Special Clip Performance)<br>
@@ -515,3 +516,6 @@ A-Daily - Chu<br>
 (G)I-DLE - Lion<br>
 (G)I-DLE - Latata<br>
 (G)I-DLE - Alone<br>
+
+
+<img src="2022-10-09_222518.png" width=100% align="middle">
