@@ -1,3 +1,12 @@
+Weeekly - Call (EXID Full Ver.)<br>
+PURPLE KISS - Ponzona (Music Bank KBS WORLD TV 210326)<br>
+SECRET NUMBER - Dangerous In Love + Fire Saturday (Simply's Spotlight Ep.493)<br>
+Rocket Punch - FLASH<br>
+Kwon Eun Bi - Door<br>
+PURPLE KISS - Zombie (Halloween Performance Video)<br>
+Kwon Eun Bi - Underwater<br>
+Miss. Jung - All right<br>
+Dreamcatcher - Vision<br>
 Billlie - Patbingsu (Performance ver.)<br>
 Weki Meki - Crush<br>
 Victoria Kern feat. Anna Grey - Ride Ride Ride<br>
