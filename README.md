@@ -1,3 +1,11 @@
+Billlie - RING ma Bell (what a wonderful world)<br>
+Chung Ha - Stay Tonight<br>
+Chung Ha - Sparkling<br>
+CLC - Distance<br>
+PURPLE KISS - Zombie (inkigayo 20210912)<br>
+Lee Chae Yeon - Hush Rush<br>
+IVE - After LIKE (OUT NOW ver.)<br>
+BanHaNa - Bad Love<br>
 Weeekly - Call (EXID Full Ver.)<br>
 PURPLE KISS - Ponzona (Music Bank KBS WORLD TV 210326)<br>
 SECRET NUMBER - Dangerous In Love + Fire Saturday (Simply's Spotlight Ep.493)<br>
