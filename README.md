@@ -1,3 +1,9 @@
+woo!ah! – Purple<br>
+(G)I-DLE - Hwaa<br>
+(G)I-DLE - Nxde<br>
+(G)I-DLE - Nxde (X-LOVE SHOW Ver.)<br>
+LIMELIGHT - Eye To Eye<br>
+Weki Meki - Oopsy<br>
 Billlie - RING ma Bell (what a wonderful world)<br>
 Chung Ha - Stay Tonight<br>
 Chung Ha - Sparkling<br>
