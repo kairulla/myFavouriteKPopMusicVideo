@@ -1,3 +1,10 @@
+KARA - When I Move
+LIMELIGHT - Starlight (Performance Ver.)
+woo!ah! - Bad Girl
+SECRET NUMBER - Fire Saturday (Performance ver.)
+SECRET NUMBER - PRIVACY (Performance Video)
+FIFTY FIFTY - Log in (Performance video)
+LE SSERAFIM - Impurities
 Weeekly - Holiday Party, After School, Zig Zag, Tag Me(@Me) (Count Down Hot Debut)<br>
 woo!ah! - Rollercoaster<br>
 STAYC - Poppy<br>
