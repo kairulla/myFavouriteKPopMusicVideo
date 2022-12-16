@@ -1,10 +1,15 @@
-KARA - When I Move
-LIMELIGHT - Starlight (Performance Ver.)
-woo!ah! - Bad Girl
-SECRET NUMBER - Fire Saturday (Performance ver.)
-SECRET NUMBER - PRIVACY (Performance Video)
-FIFTY FIFTY - Log in (Performance video)
-LE SSERAFIM - Impurities
+BVNDIT - Venom (KPop Live Tingground)<br>
+CLASS -y - Tick Tick Boom (Night Ver.)<br>
+CLASS -y - Tick Tick Boom (KPop Live Tingground)<br>
+CLASS -y - Tick Tick Boom<br>
+ALICE - Dance On (Simply K-Pop CON-TOUR Ep.547)<br>
+KARA - When I Move<br>
+LIMELIGHT - Starlight (Performance Ver.)<br>
+woo!ah! - Bad Girl<br>
+SECRET NUMBER - Fire Saturday (Performance ver.)<br>
+SECRET NUMBER - PRIVACY (Performance Video)<br>
+FIFTY FIFTY - Log in (Performance video)<br>
+LE SSERAFIM - Impurities<br>
 Weeekly - Holiday Party, After School, Zig Zag, Tag Me(@Me) (Count Down Hot Debut)<br>
 woo!ah! - Rollercoaster<br>
 STAYC - Poppy<br>
